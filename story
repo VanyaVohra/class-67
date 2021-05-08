@@ -1,1 +1,2 @@
-once upon a time there was a monkey who lived on  branch of a tree
+once upon a time there was a monkey who lived on  branch of a tree. There was a crocodile in the lake near that tree.
+one day the crocodile came near the tree and the monkey offered him a fruit. the crocodile and monkey became good friends.
